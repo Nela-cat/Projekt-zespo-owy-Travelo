@@ -1,1 +1,1 @@
-# Projekt-zespo-owy-Travelo
+# Projekt-zespolowy-Travelo
